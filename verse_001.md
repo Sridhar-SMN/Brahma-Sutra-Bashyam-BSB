@@ -1,1 +1,1 @@
-notes on athatho brahma jigyasa
+अथातो ब्रह्मजिज्ञासा  - athāto brahmajijñāsā || 1 ||
