@@ -16,5 +16,26 @@
 
 ## Notes on Adhyasa Bashyam
 
+atha—Now; ataḥ—therefore; brahmajijñāsā—the inquiry (into the real nature) of Brahman.
+
+1. Now (after the attainment of the requisite spiritual qualities) therefore (as the results obtained by sacrifices etc., are ephemeral, whereas the result of the knowledge of Brahman is eternal), the inquiry (into the real nature) of Brahman (which is beset with doubts owing to the conflicting views of various schools of philosophy, should be taken up).
+
+At the very beginning the utility of such an inquiry is questioned.
+
+Objection: Such an inquiry is not worth the trouble. An intelligent man generally does not enter into an inquiry about an object which is already known, or the knowledge of which does not serve any useful purpose. He is always guided by utility. Now Brahman is such an object. As Brahman pure and unconditioned, there is no doubt or indefiniteness about It, for we have such definitions as, “Brahman is Truth, Knowledge, Infinity” (Taitt. 2.1). As identical with the Self (Atman)—which the Vedanta holds—also, there is no doubt about Brahman; for the Self is nothing but the object of the notion of ‘I’, the empirical self which is well known to exist as something different from the body, senses, etc. Moreover, no one doubts his own existence. There is therefore no indefiniteness about Brahman, which would induce one to make an inquiry into It. The objection that this empirical self is a result of super-imposition (Adhyasa) of the non-Self on the Self and vice versa, and is therefore not the true Self, cannot be accepted, for such a superimposition between two absolutely contradictory objects is not possible.
+
+Again, the knowledge of this Self or Brahman which, as shown above, everyone possesses, cannot destroy the world phenomena and help one to attain Liberation, for they have been existing together side by side all along from time immemorial. And as there is no other knowledge of the Self besides ‘Ego-consciousness’, which can be called the true knowledge of the Self, there is no chance of the world phenomena ever ceasing to exist. In other words, the world is a reality, and not something illusory. So the knowledge of Brahman serves no useful purpose such as the attainment of Liberation from relative existence (Samsara). For these reasons an inquiry into Brahman is not desirable.
+
+Answer: An inquiry into Brahman is desirable, because there is some indefiniteness with respect to It, for we find various conflicting views concerning Its nature. Different schools of philosophy hold different views. Superimposition would have been an impossibility, and there would have been no indefinitcness about Brahman, if the empirical self had been the real Self, But it is not. The scriptures (Srutis) say that the Self is free from all limiting adjuncts and is infinite, all-blissful, all-knowing, One without a second, and so on. This the scriptures repeatedly inculcate, and as such it cannot be interpreted in any secondary or figurative sense. But the empirical self is felt as occupying definite space, as when we say, ‘I am in the room’, as involved in manifold miseries, as ignorant, etc. How can this kind of notion be regarded as the true knowledge of the Self? To regard the Self, which is beyond limitation etc., as being limited etc., is itself an illusion, and hence superimposition is a self-evident fact. The result of the true knowledge of the Self leads to Liberation and so serves a very, very fruitful purpose. Therefore an inquiry about Brahman through an examination of the Vedanta texts dealing with It is worth while and should be undertaken.
+
+The word now in the Sutra is not used to introduce a new subject that is going to be taken up, in which sense it is generally used in other places, as for example, in the beginning of the Yoga-Sutras or the Purva Mimamsa-Sutras. Neither is it used in any other sense, except that of immediate consecution, that is, it implies an antecedent, which existing, the inquiry about Brahman would be possible, and without which it would be impossible. This antecedent is neither the study of the Vedas, for it is a common requisite for Purva Mimamsa as well as Vedanta, nor the knowledge and performance of rituals prescribed by the Karmakanda, for these in no way help one who aspires after knowledge, but certain spiritual requisites.
+
+The spiritual requisites referred to are :
+
+discrimination between things permanent and transient,
+renunciation of the enjoyment of fruits of action in this world and in the next,
+the six treasures, as they are called, viz., not allowing the mind to externalize and checking the external instruments of the sense organs (Sama and Dama), not thinking of things of the senses (Uparati), ideal forbearance (Titiksha), constant practice to fix the mind in God (Samadhana), and faith (Sraddha);
+and the intense desire to be free (Mumukshutvam).
+
 
 
