@@ -16,7 +16,7 @@
 
 ## My notes on Adhyasa Bashyam from Swami P lectures
 
-
+Akan Datang :-)
 
 
 ## Notes on Adhyasa Bashyam - Swami Gambirananda 
