@@ -14,6 +14,11 @@
 
 अतस्मिंस्तद्बुद्धिरित्यवोचाम। तद्यथा पुत्रभार्यादिषु विकलेषु सकलेषु वा अहमेव विकलः सकलो वेति बाह्यधर्मानात्मन्यध्यस्यति तथा देहधर्मान् स्थूलोऽहं कृशोऽहं गौरोऽहं तिष्ठामि गच्छामि लङ्घयामि च इति तथेन्द्रियधर्मान् मूकः काणः क्लीबो बधिरोऽन्धोऽहम् इति तथान्तःकरणधर्मान् कामसंकल्पविचिकित्साध्यवसायादीन्। एवमहंप्रत्ययिनमशेषस्वप्रचारसाक्षिणि प्रत्यगात्मन्यध्यस्य तं च प्रत्यगात्मानं सर्वसाक्षिणं तद्विपर्ययेणान्तःकरणादिष्वध्यस्यति। एवमयमनादिरनन्तो नैसर्गिकोऽध्यासो मिथ्याप्रत्ययरूपः कर्तृत्वभोक्तृत्वप्रवर्तकः सर्वलोकप्रत्यक्षः। अस्यानर्थहेतोः प्रहाणाय आत्मैकत्वविद्याप्रतिपत्तये सर्वे वेदान्ता आरभ्यन्ते। यथा चायमर्थः सर्वेषां वेदान्तानाम् तथा वयमस्यां शारीरकमीमांसायां प्रदर्शयिष्यामः। वेदान्तमीमांसाशास्त्रस्य व्याचिख्यासितस्येदमादिमं सूत्रम् 
 
+## ## My notes on Adhyasa Bashyam from Swami P lectures
+
+
+
+
 ## Notes on Adhyasa Bashyam - Swami Gambirananda 
 
 atha—Now; ataḥ—therefore; brahmajijñāsā—the inquiry (into the real nature) of Brahman.
@@ -37,7 +42,7 @@ renunciation of the enjoyment of fruits of action in this world and in the next,
 the six treasures, as they are called, viz., not allowing the mind to externalize and checking the external instruments of the sense organs (Sama and Dama), not thinking of things of the senses (Uparati), ideal forbearance (Titiksha), constant practice to fix the mind in God (Samadhana), and faith (Sraddha);
 and the intense desire to be free (Mumukshutvam).
 
-## My notes on Adhyasa Bashyam
+
 
 
 
